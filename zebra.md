@@ -1,0 +1,1 @@
+Zebra – ssak z rodziny koniowatych charakteryzujący się obecnością białych pasów na czarnej sierści. Zwierzęta te należą do rodzaju koń.
