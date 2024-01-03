@@ -1,0 +1,1 @@
+Słoń afrykański (Loxodonta africana) – gatunek ssaka z rodziny słoniowatych (Elephantidae), największe współcześnie żyjące zwierzę lądowe. Wcześniej uznawany za jeden gatunek wraz ze słoniem leśnym (Loxodonta cyclotis). Zwierzę stadne, zamieszkuje afrykańską sawannę, lasy i stepy. W starożytności wykorzystywane jako zwierzęta bojowe.
